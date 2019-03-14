@@ -1,1 +1,1 @@
-tyt text est
+privet ya chto to pomenyal tyt da
